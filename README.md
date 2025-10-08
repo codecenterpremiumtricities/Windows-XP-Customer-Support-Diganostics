@@ -1,2 +1,2 @@
 # Windows-XP-Customer-Support-Diganostics
-From My Personal Subription
+My Personal MSDN Subscription
