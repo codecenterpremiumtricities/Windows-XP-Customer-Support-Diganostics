@@ -1,2 +1,2 @@
 # Winsows-XP-Customer-Support-Diganostics
-My My Personal Subription
+From My Personal Subription
